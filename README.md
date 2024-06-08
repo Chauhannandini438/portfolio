@@ -51,5 +51,6 @@ Contact
 Feel free to reach out if you have any questions, opportunities, or collaboration ideas!
 
 Email: your-nandinisinghchauhan1234@gmai.com
+
 LinkedIn: https://www.linkedin.com/in/nandini-singh-691b69236/
 
